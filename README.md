@@ -1,5 +1,8 @@
 # Apparatus
 
+![Alt text](apparatus-thumb.jpg?raw=true "Apparatus - Font Download by DSGN.CO")
+
+
 A font Made by DSGN.CO
 Apparatus is free for personal use.
 
